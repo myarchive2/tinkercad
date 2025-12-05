@@ -5,4 +5,4 @@
 
 [tinkercad 2li sayi sistemi](https://www.tinkercad.com/things/3R10wBVPf4p-ledlerle-uzakligi-2li-sayi-sistemle-gostermek)
 
-[tinkercad 2li sayi sistemi](https://www.tinkercad.com/things/3R10wBVPf4p-ledlerle-uzakligi-2li-sayi-sistemle-gostermek)
+[tinkercad 2li sayi sistemi](https://www.tinkercad.com/things/icnzUGJmhxF)
