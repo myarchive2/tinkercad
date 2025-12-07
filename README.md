@@ -7,5 +7,6 @@
 
 [tinkercad 2li sayi sistemi 0-128 İNÇ UZAKLIK ÖLÇÜM](https://www.tinkercad.com/things/l2rd5UpDMcE/editel)
 
+[tinkercad 2li sayi sistemi 0-128 İNÇ UZAKLIK ÖLÇÜM](https://www.tinkercad.com/things/kPBBiQjzzJY/editel)
 
 
