@@ -5,7 +5,7 @@
 
 [tinkercad 2li sayi sistemi 0-128 İNÇ UZAKLIK ÖLÇÜM](https://www.tinkercad.com/things/3R10wBVPf4p-ledlerle-uzakligi-2li-sayi-sistemle-gostermek)
 
-[tinkercad 2li sayi sistemi 0-128 İNÇ UZAKLIK ÖLÇÜM](https://www.tinkercad.com/things/l2rd5UpDMcE/editel)
+[tinkercad mesafe olçum](https://www.tinkercad.com/things/l2rd5UpDMcE/editel)
 
 [tinkercad simon says](https://www.tinkercad.com/things/kPBBiQjzzJY/editel)
 
